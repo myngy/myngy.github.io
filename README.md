@@ -1,1 +1,2 @@
-# 南瓜页  [editor](https://github.com/myngy/myngy.github.io/edit/master/README.md)    
+# 南瓜页
+@baiduhi | wx whatsapp 13850168929 | @139.com
