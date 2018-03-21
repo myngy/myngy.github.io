@@ -1,2 +1,2 @@
 # 南瓜页
-@baiduhi | wx wsap 13850168929 | @139.com
+@baiduhi | pan | wx wsap 13850168929 | @139.com
